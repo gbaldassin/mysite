@@ -19,7 +19,7 @@ ulla vellet coniuge evitabile erat aliter esse, ignis curvi silvis **et** prope
 confessam. Ipsa tibi tribuente ignotae! **Magnique** temporis urbes rigebant
 sumpsitque esto mittere ille *Fortuna et* Sidonis fraterni lenita iaculum.
 
-1. Ego dapes
+1. Ego dapes  XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXx
 2. Impleverat aberat auctor
 3. Credere inposuit in parcum
 
